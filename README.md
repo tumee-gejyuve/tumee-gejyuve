@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @tumee
+- 👀 I’m interested in PHYSICS
+- 💞️ I’m looking to collaborate on IT PROJECTS
+- 📫 How to reach me tumeedev@gmail.com
+- 😄 Pronouns: HE/HIM
+- ⚡ Fun fact: UNKNOWN
